@@ -29,6 +29,38 @@ With less than 10% of the budget, you can purchase goods of the same quality as 
 
 ----------------------------------------------------------------------------------------------------------------------------------------
 With less than 10% of the budget, you can purchase goods of the same quality as luxury items. Contact me for more details.
+-------------------------------------------------------------------------------------------------------------------------------------
+With less than 10% of the budget, you can purchase goods of the same quality as luxury items. Contact me for more details.
+---------------------------------------------------------------------------------------------------------------------------
+Global Luxury Goods Choices-02  没有写广告词的。
+--------------------------------------------------------------------------------------------------------------------------------------------
+🥳We have wholesale price and high quality,if you are wholesalers or you are interested in our goods,please contact us!
+
+-------------------------------------------------------------------------------------------------------------------------------------------
+💻24-hour online store
+👜Luxury goods, shoes, bags, clothing, 
+decorations, various electrical appliances, customized products
+✈️Shipping to all countries
+🚄Delivery time 5-10 days
+------------------------------------------------------------------------------------------------------------------------------------
+📣The best luxury goods supplier for 14 years, 
+⌚️Contact whatsapp to get 30% discount and low price, limited quantity.
+📦We will take product photos and videos for your confirmation before shipping.
+📣We exist to realize the ultimate dream of all women.
+🛒High quality/green payment/fast logistics/safe refund.    文字少就是好。。
+-----------------------------------------------------------------------------------------------------------------------
+
+
+
+                                       
+
+
+
+
+
+
+
+
 
 
 
