@@ -79,12 +79,17 @@ decorations, various electrical appliances, customized products
 --------------------------------------------------------------------------------------------------------------
 Biggest discount for all kinds of luxury goods like these jewelry are now available in my sotre.
 
+------------------------------------------------------------------------------------------------------------------------------
+We sell a wide variety of luxury goods, such as shoes, clothing, belts, bags, sunglasses, and jewelry.
+                
+-------------------------------------------------------------------------------------------------------------------------
+Contact us for more information.
+----------------------------------------------------------------------
 
-
-
-
+                
                                        
-
+Luxury goods trade
+                
 
 
 
